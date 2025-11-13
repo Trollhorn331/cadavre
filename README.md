@@ -13,3 +13,7 @@ Le cadavre soupira :
 Le cadavre se rallongea, dépité, puis remarqua que la lumière du couloir vacillait étrangement.
 Un souffle glacé parcourut la salle, et un tiroir lointain grinça tout seul.
 « Ah bah tiens… enfin quelqu’un qui veut discuter », marmonna-t-il, pas sûr que cette nouvelle compagnie sera plus joyeuse.
+
+Une silhouette étrange se redressa dans un bruit poisseux, un râle gutural se fit entendre et la température de la pièce chuta de plusieurs degrés.
+" Merci, je trouvais aussi qu'il faisait un peu chaud ici. " Apparemment, le nouveau venu était tout aussi morose que les autres...
+
